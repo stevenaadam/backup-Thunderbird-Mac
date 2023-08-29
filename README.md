@@ -31,4 +31,4 @@ Mail backup X tool benefits
 
 Get the free demo today 
 
-The free trial of this tool is created to give you real time experience of working with it. The free trial can be used for 15 days. You can use all the features of this tool and ensure that it works for you. Once you are sure that it works, you should upgrade to the full version right away. To get the free version of Mail backup X, click here - [www.mailbackupx.com/download-mailbackupx/](https://www.mailbackupx.com/how-to-backup-thunderbird-mails-on-mac/)https://www.mailbackupx.com/how-to-backup-thunderbird-mails-on-mac/
+The free trial of this tool is created to give you real time experience of working with it. The free trial can be used for 15 days. You can use all the features of this tool and ensure that it works for you. Once you are sure that it works, you should upgrade to the full version right away. To get the free version of Mail backup X, click here https://www.mailbackupx.com/how-to-backup-thunderbird-mails-on-mac/
